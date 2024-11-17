@@ -17,3 +17,6 @@
 
 
 > vsvmil - [富若 -ᴛᴏᴍɪᴡᴀᴋᴀ-](https://m.youtube.com/@-tomiwaka-551) - [GarageBandでインスト曲作ってみた。Tune 130「7th HEAVEN V2」 GarageBand自作曲/オリジナル #GarageBand](https://youtu.be/ofp6UqLIcz4) <img src="media/ofp6UqLIcz4/Screenshot_2024-11-17-16-25-44-87.png">
+
+
+> vsvmi_cn - [ともきち]() - [〈東方和風アレンジ〉縁～遥か彼方へと紡ぐ旋律 (原曲:法界の火/感情の摩天楼～Cosmic Mind)](https://youtu.be/iFg7fc1faSE) <img src="media/iFg7fc1faSE/Screenshot_2024-11-17-16-46-31-56.png">
