@@ -13,6 +13,9 @@
 > vsvmi - [DystoPete](https://m.youtube.com/@DystoPete) - [https://youtu.be/Kb0FefFjpP0](https://youtu.be/Kb0FefFjpP0) - "Fearless" - by DystoPete - 05 - NOV24 - [Liquid Drum & Bass] - YouTube
 
 
+> vsvmibg - [Lappy](https://m.youtube.com/channel/UCFCKUxeHEDpElmqZ2zl9aUQ) - 2023_06_20 - [Lord of Ashes](https://youtu.be/4nrI88fmc-I) <img src="media/4nrI88fmc-I/Screenshot_2024-11-23-13-19-59-34.png">
+
+
 > vsvmil - [SharKur](https://m.youtube.com/@v.sharkur8813) - [[東方Arrange] Pandemonic planet : ⌈✯ 𝐓𝐫𝐢𝐧𝐢𝐭𝐲 𝐑𝐞𝐦𝐢𝐱 ✯⌋](https://youtu.be/xLRrFKZqV2k) <img src="media/xLRrFKZqV2k/Screenshot_2024-11-17-15-29-05-93.png">
 
 
