@@ -16,6 +16,9 @@
 > vsvmibg - [Lappy](https://m.youtube.com/channel/UCFCKUxeHEDpElmqZ2zl9aUQ) - 2023_06_20 - [Lord of Ashes](https://youtu.be/4nrI88fmc-I) <img src="media/4nrI88fmc-I/Screenshot_2024-11-23-13-19-59-34.png">
 
 
+> vsvmibg - [8Bit_Travel](https://m.youtube.com/@8bittravel) - 2024_11_09 - [보스 등장 (Boss Entrance) - 8Bit_Travel / boss bgm, animation, battle theme, Corruption](https://youtu.be/DkWQEy_27FM) <img src="media/DkWQEy_27FM/Screenshot_2024-11-23-13-22-19-14.png">
+
+
 > vsvmil - [SharKur](https://m.youtube.com/@v.sharkur8813) - [[東方Arrange] Pandemonic planet : ⌈✯ 𝐓𝐫𝐢𝐧𝐢𝐭𝐲 𝐑𝐞𝐦𝐢𝐱 ✯⌋](https://youtu.be/xLRrFKZqV2k) <img src="media/xLRrFKZqV2k/Screenshot_2024-11-17-15-29-05-93.png">
 
 
